@@ -1,0 +1,1 @@
+Fortune database of posts from the italian "Giovine01 - una mente binaria" blog http://giovine01.tumblr.com
